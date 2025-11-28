@@ -1,5 +1,5 @@
 # 💫 Sobre mi:
-Desarrolladora de software con un enfoque claro en el <br>crecimiento profesional y el desarrollo de habilidades interpersonales. <br>Mi capacidad para gestionar múltiples responsabilidades, mi <br>perseverancia y enfoque en superar desafíos, así como mis <br>habilidades <br>excepcionales en escuchar y persuadir, me impulsan hacia el éxito. <br>Mi fuerte empatía me permite comprender las necesidades de los <br>demás y fomentar relaciones efectivas.
+Desarrolladora de software con un enfoque claro en el crecimiento profesional y el desarrollo de habilidades interpersonales. Mi capacidad para gestionar múltiples responsabilidades, mi perseverancia y enfoque en superar desafíos, así como mis habilidades excepcionales en escuchar y persuadir, me impulsan hacia el éxito. Mi fuerte empatía me permite comprender las necesidades de los demás y fomentar relaciones efectivas.
 
 
 ## 🌐 Socials:
